@@ -1,1 +1,1 @@
-# the-baking-pro-privacy-polic
+# the-baking-pro-privacy-policy
